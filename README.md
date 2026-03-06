@@ -1,3 +1,3 @@
 - 👋 Hi, I’m: @JostinFernandez
 - 👀 I’m interested in: personal growth, time management, coding, etc.
-- 🌱 I’m currently at Essex County College.
+- 🌱 I’m currently studying at Essex County College.
